@@ -4,19 +4,12 @@
 
   
 
-![image alt](https://github.com/puffufufufu/puffufufufu/blob/bd943d48dd6f70b4366a3c2c2098a8a640f5df03/%D0%91%D0%B5%D0%B7%20%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F332_20260720172524.png) 
+![image alt](https://github.com/littlepatient/littlepatient/blob/93c12d12d29fa45e5b58ab2227101de6dc86c60b/%D0%91%D0%B5%D0%B7%20%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F355_20260906122558.png) 
 
 · · ─ ·ʚɞ· ─ · ·
 
 
-[![Profile Views](https://komarev.com/ghpvc/?username=littlepatient)](https://github.com/antonkomarev/github-profile-views-counter)
-
-
-⢀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⡀
-⢇⠈⠑⠄⣀⠀⠀⠀⠀⠀⠀⠀⣀⠠⠊⠁⡸
-⢨⡑⠀⠀⠀⢉⡐⢆⠀⡠⢂⡉⠀⠀⠀⢊⡅
-⠀⠘⠭⢀⡄⢣⡤⠜⠀⠡⢤⡞⢠⡀⠭⠃⠀
-⠀⠀⠀⠀⠉⠁⠀⠀⠀⠀⠀⠈⠉⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+[![Profile Views](https://komarev.com/ghpvc/?username=littlepatient)](https://github.com/antonkomarev/github-profile-views-counter)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
 𐔌  .  𝓟𝓾𝓯𝓯/𝓟𝓾𝓯𝓯𝔂𝓪 
