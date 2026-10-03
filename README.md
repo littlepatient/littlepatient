@@ -12,7 +12,7 @@
 [![Profile Views](https://komarev.com/ghpvc/?username=littlepatient)](https://github.com/antonkomarev/github-profile-views-counter)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
-𐔌  .  𝓟𝓾𝓯𝓯/𝓟𝓾𝓯𝓯𝔂𝓪 
+𐔌  .  𝓕𝓾𝓶𝓲𝓶𝓲 𝓟𝓾𝓯𝓯/𝓟𝓾𝓯𝓯𝔂𝓪 
 
 𝜗𝜚  16 y. o. ﹠ bisexual
 
