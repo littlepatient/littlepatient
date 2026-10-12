@@ -4,7 +4,7 @@
 
   
 
-![image alt](https://github.com/littlepatient/littlepatient/blob/93c12d12d29fa45e5b58ab2227101de6dc86c60b/%D0%91%D0%B5%D0%B7%20%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F355_20260906122558.png) 
+![image alt](https://github.com/littlepatient/littlepatient/blob/faad25515de50bcc04139933a787e66e3d547780/baby%20blue%20banner.jpeg) 
 
 · · ─ ·ʚɞ· ─ · ·
 
