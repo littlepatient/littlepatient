@@ -24,7 +24,7 @@
 
 ◠ . ─ · ◠ . ─ · ◠ . ─ · ◠ . ─ · 
 
-꒰୨୧◞ 。❕⠀looking 4. . .ᐟ irl Dottore / irl Masakrik!!⠀₊ ˚⊹
+꒰୨୧◞ 。❕⠀my. . .ᐟ irl Dottore / irl Masakrik is disconnected Monitor!!⠀₊ ˚⊹
 
 ɞ⠀.⠀𝓬+𝓱, 𝓮𝔁𝓬𝓮𝓹𝓽:𝓲𝓯 𝓲'𝓶 𝓪𝓵𝓻𝓮𝓪𝓭𝔂 𝔀𝓲𝓽𝓱 𝓯𝓻𝓲𝓮𝓷𝓭𝓼﹗ ໒꒱۪
 
