@@ -12,10 +12,10 @@
 
 
 
-$\color{#d6d6d6}{Kinns}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🩹}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{ Mimi(psychocuties),⠀Milk(sanrio),Aether(Genshin Impact) }$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+$\color{#d6d6d6}{Kinns}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🩹}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{ Mimi(psychocuties),Milk(sanrio),Aether(Genshin Impact) }$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-$\color{#d6d6d6}{in love w/ ..}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🩺}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{the Doctor Zhenya!! in love with him smm, my irl Dottore/Masacrik♡}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;
+$\color{#d6d6d6}{in  love  with ..}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🩺}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{the  Doctor  Zhenya!! in  love  with  him  smm,  my  irl  Dottore  and Masacrik♡}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;
 
 
-$\color{#d6d6d6} {💉}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🎐}$ &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{𝖢*𝗁⠀𝖾𝗇𝖼!}$ &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{ฅ}$ &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{rus/eng only, c+h freely!! dnc or inspo}$ 
+$\color{#d6d6d6} {💉}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🎐}$ &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{ฅ}$ &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{rus  eng  only,  c+h  freely!!  dnc or  inspo}$ 
 
