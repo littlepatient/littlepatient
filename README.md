@@ -1,32 +1,21 @@
-  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-  
-  𝓱𝓲𝓲!! 🥛
+<div id="header" align="center">  
 
-  
-
-![image alt](https://github.com/littlepatient/littlepatient/blob/faad25515de50bcc04139933a787e66e3d547780/baby%20blue%20banner.jpeg) 
-
-· · ─ ·ʚɞ· ─ · ·
+<img width="400" height="225" alt="tumblr_cd1830235e576d1ef7dfe32118b091f2_e5db1416_400" src="https://https://github.com/littlepatient/littlepatient/blob/d2eecd8a76c2716b3b675c6299ed7f70c04a061c/505739647-6f6ed137-386a-4ae2-9923-1ba0e15dec83.gif" />
 
 
-[![Profile Views](https://komarev.com/ghpvc/?username=littlepatient)](https://github.com/antonkomarev/github-profile-views-counter)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
-𐔌  .  𝓕𝓾𝓶𝓲𝓶𝓲 𝓟𝓾𝓯𝓯/𝓟𝓾𝓯𝓯𝔂𝓪 
 
-𝜗𝜚  16 y. o. ﹠ bisexual
 
-.　𝓐𝓮𝓽𝓱𝓮𝓻 (𝓰𝓮𝓷𝓼𝓱𝓲𝓷 𝓲𝓶𝓹𝓪𝓬𝓽)　᎖　𝓜𝓲𝓵𝓴 (𝓼𝓪𝓷𝓻𝓲𝓸)　᎖　𝓜𝓲𝓶𝓲 (𝓹𝓼𝔂𝓬𝓱𝓸 𝓬𝓾𝓽𝓲𝓮𝓼) 𝓽𝓻𝓾𝓮 #1 𝓴𝓲𝓷𝓷!🎐　⌓⌓
+<img width="400" height="225" alt="tumblr_cd1830235e576d1ef7dfe32118b091f2_e5db1416_400" src="https://github.com/littlepatient/littlepatient/blob/d2eecd8a76c2716b3b675c6299ed7f70c04a061c/EVERYTHING%20IS%20A%20GIANT%20WIP%2C%20PLEASE%20BE%20PATIENT!.jpeg" />
 
-ᛝ       ︰      rus/eng only        ⏖
 
-˚₊‧꒰ა 𓂋 ໒꒱ ‧₊˚
 
-◠ . ─ · ◠ . ─ · ◠ . ─ · ◠ . ─ · 
 
-꒰୨୧◞ 。❕⠀my. . .ᐟ irl Dottore / irl Masakrik is disconnected Monitor!!⠀₊ ˚⊹
+$\color{#d6d6d6}{Kinns}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🩹}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{ Mimi(psychocuties),⠀Milk(sanrio),Aether(Genshin Impact) }$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-ɞ⠀.⠀𝓬+𝓱, 𝓮𝔁𝓬𝓮𝓹𝓽:𝓲𝓯 𝓲'𝓶 𝓪𝓵𝓻𝓮𝓪𝓭𝔂 𝔀𝓲𝓽𝓱 𝓯𝓻𝓲𝓮𝓷𝓭𝓼﹗ ໒꒱۪
+$\color{#d6d6d6}{in love w/ ..}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🩺}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{the Doctor Zhenya!! in love with him smm, my irl Dottore/Masacrik♡}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⊹ ࣪ ˖ ꒰ঌ ໒꒱
+
+$\color{#d6d6d6} {💉}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🎐}$ &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{𝖢*𝗁⠀𝖾𝗇𝖼!}$ &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{ฅ}$ &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{rus/eng only, c+h freely!! dnc or inspo}$ 
 
