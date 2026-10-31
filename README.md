@@ -12,7 +12,7 @@
 
 $\color{#d6d6d6}{Kinns}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🩹}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{ Mimi(psychocuties),Milk(sanrio),Aether(Genshin Impact) }$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-$\color{#d6d6d6}{in_love_with..}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🩺}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{the_Doctor_Zhenya!! in_love_with_him_smm,_my_irl_Dottore_and_Masacrik♡}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;
+$\color{#d6d6d6}{looking_for..}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🩺}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{ for_my_irl_Dottore_and_Masacrik♡}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;
 
 
 $\color{#d6d6d6} {💉}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{── 🎐}$ &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{ฅ}$ &nbsp;&nbsp;&nbsp; $\color{#d6d6d6}{rus_eng_only,_c+h_freely!!  dnc_or_inspo}$ 
