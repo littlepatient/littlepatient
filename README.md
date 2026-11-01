@@ -14,7 +14,7 @@
 　◌　 ̟　💤　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟̟
  
 
-𝓟𝓾𝓯𝓯 / 𝓪𝓷𝔂 𝓹𝓻𝓸𝓷𝓸𝓾𝓷𝓬𝓮𝓼, 𝓱𝓮𝓽𝓮𝓻𝓸𝓼𝓮𝔁𝓾𝓪𝓵
+𝓟𝓾𝓯𝓯 / 𝓪𝓷𝔂 𝓹𝓻𝓸𝓷𝓸𝓾𝓷𝓬𝓮𝓼, 𝓭𝓸𝓬𝓽𝓸𝓻𝓼𝓮𝔁𝓾𝓪𝓵
 
 𝓴𝓲𝓷𝓷𝓼:Mimi(psychocuties), Aether(genshin impact), Milk(sanrio) 
 
